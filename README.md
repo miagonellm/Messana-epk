@@ -1,2 +1,3 @@
 # Messana-epk
-Michael 
+Michael Messana is a talented pianist and composer. Here is his personalized EPK. 
+
